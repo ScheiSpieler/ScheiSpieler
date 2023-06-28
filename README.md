@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @ScheiSpieler
-- You can reach me on [twitter](https://twitter.com/RaffleBotter) or discord TyIer#0001
+- You can reach me on [twitter](https://twitter.com/RaffleBotter) or discord @scheispieler
